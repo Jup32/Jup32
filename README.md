@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jup32
+- 👋 Hi, I’m Jup Salty
 - 👀 I’m interested in ... salt
 - 🌱 I’m currently learning ... beein salty
 - 💞️ I’m looking to collaborate on ... salt
